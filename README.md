@@ -1,4 +1,4 @@
-Skills Acquired:
+
 Sales and Distribution:Training to help sales reps become trusted advisors who understand their customers businesses, including fundamental technical knowledge and maximum sales performance.
 
 Technical Training:In-depth knowledge of the manufacturing environment, technologies, and processes, enabling students to engage customers effectively.
