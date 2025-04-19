@@ -19,4 +19,4 @@ Profitability Insights:Training on cost management, financial planning, and maxi
 
 Business Development:Skills to identify growth opportunities, build customer relationships, and enhance brand value.
 
-Certification: The certifications signifies that the student has successfully completed the course and demonstrated proficiency in the above areas. This certification is recognized by industry leaders and aligns with national credentials.
+Certification: The certifications signifies that the student has successfully completed the course and demonstrated proficiency in the above areas. These certifications are recognized by industry leaders and aligns with national credentials.
